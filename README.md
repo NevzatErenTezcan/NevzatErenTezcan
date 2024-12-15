@@ -1,4 +1,4 @@
-CS Major, Freshman at Bilkent University
+CS Major, Sophomore at Bilkent University
 
   
 
